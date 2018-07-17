@@ -1,2 +1,2 @@
-# Trabalhos-de-Designer-Gr-fico
+# Trabalhos-de-Designer-Grafico
 Todos os meus trabalhos no Photoshop
